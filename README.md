@@ -1,3 +1,1 @@
 
-# TwiiiifhbitterSJSU Manav
-
